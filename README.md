@@ -1,8 +1,8 @@
 <h2>磁力狗官网，最新全球种子资源库网站|网页版入口|下载</h2>
 <p>磁力狗是一款基于磁力链接的搜索引擎，旨在为用户提供一个干净、好用的资源搜索平台。它通过深度挖掘和整理磁力链接及百度网盘等资源，让用户能够更快捷地获取所需信息。磁力狗界面简洁，操作简单，支持关键词搜索、智能排序和筛选功能，使用户即使初次使用也能快速上手。此外，磁力狗还注重隐私保护，不会记录用户的任何敏感信息，确保用户在使用过程中的安全。</p>
-<p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5718.html
-" target="_blank" ><strong>磁力狗最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank" ><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://ciligou.litxdh.com" target="_blank" ><strong>磁力狗最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com" target="_blank"><strong>磁力导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank" ><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 
 <p><strong>功能特点：</strong></p>
